@@ -1,1 +1,1 @@
-Auther - Aditya Vardhan Reddy 
+Author - Aditya Vardhan Reddy 
